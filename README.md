@@ -52,4 +52,4 @@ Panama 🇵🇦
 
 ## 📫 Connect with me
 
-LinkedIn: www.linkedin.com/in/yansmella
+LinkedIn: www.linkedin.com/in/md-yans-mella16
